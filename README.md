@@ -15,7 +15,7 @@ all in web3
 
 Twitter [@deepbluuest](https://twitter.com/deepbluuest) 
 
-Web3 notion [Notion](https://bluuest.notion.site/Web3-42069310ad10403593fb42be18b55e7c)
+Web3 notion [Notion](https://nobluue.notion.site/c1f072723a5543c3a17914bbdfa6f6dc?v=afbc4f6168e84acf98058abe00943f61)
 
 Telegram  [t.me/crushbluue](https://t.me/crushbluue) 
 
